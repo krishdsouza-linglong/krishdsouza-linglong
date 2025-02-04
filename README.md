@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @krishdsouza-linglong
+- 👋 Hi, I’m @krishkurankar-linglong
 - 👀 I’m interested in cooking singing badminton enthusiast
 - 🌱 I’m currently learning Diploma In Computer Engineering
 - 💞️ I’m looking to collaborate on ...
